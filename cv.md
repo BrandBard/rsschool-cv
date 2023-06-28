@@ -1,1 +1,2 @@
-#Kristina Engoian
+# Kristina Engoian
+# Discord: BrandBard
